@@ -8,7 +8,7 @@
 * [Anna](https://whippoorwillhill479610187.wordpress.com/) 
 * [Chania](https://chaniahoffman.github.io/01-My-Blog/)
 * [Lakin](needtoknowprobiotics.wordpress.com)
-* [Deidre](https://deidre1012.github.io/01-Addatives-in-Foods)
+* [Deidre](https://foodprocessblog.wordpress.com/)
 * [Robert](https://fisharecoolman.wordpress.com)
 * [Braden Farris](http://birdhuntingnarratives.video.blog)
 * [Skyler](https://bigtineconsulting.wordpress.com/)
